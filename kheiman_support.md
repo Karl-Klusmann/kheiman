@@ -1,4 +1,4 @@
 Support can be found here
 --------------------------------
 
-kjklusmann@gmail.com
+kheimanapp@gmail.com
